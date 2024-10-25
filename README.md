@@ -1,4 +1,3 @@
-# repository-basic
+#2020732044
 
-###마ㅗㅓㅠ라러ㅠㅁ디ㅓㅗ
-*seifhrivherivhi
+#CHO MINHYUNG
